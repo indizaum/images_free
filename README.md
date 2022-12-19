@@ -4,4 +4,4 @@
 
 ![76aec23b-0011-469d-975d-4c98a6244d3f](https://user-images.githubusercontent.com/75588930/208536853-06a7d9db-2aba-4e9c-b25c-49d1f5c78f06.png)
 
-![dropboard_logo_v2](https://user-images.githubusercontent.com/75588930/208537534-bca5f91e-3fb5-476a-bc5c-f5afe6341991.png)
+![65db0b46-faa2-42f1-bd1b-bb6f77c52720](https://user-images.githubusercontent.com/75588930/208537658-64dd6458-e2e7-4fd5-8400-a20d31941773.png)
